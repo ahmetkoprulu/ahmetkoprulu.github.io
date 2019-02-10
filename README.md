@@ -1,1 +1,0 @@
-# ahmetkoprulu.github.io
